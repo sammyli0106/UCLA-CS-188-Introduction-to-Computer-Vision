@@ -1,5 +1,4 @@
 Sum Yi Li, 505146702, sammyli0106@gmail.com
-Insiya Bambot, 605006720, insiyab8@gmail.com
 
 Sources: 
 
